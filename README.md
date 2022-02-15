@@ -3,3 +3,6 @@
 This Application is Live and Free of Use 
 
 Track your Spot Trades, Perpetual Swaps, Futures Contracts, and NFT Valuations
+
+
+© 2022 QSATCHEL 
